@@ -1,7 +1,5 @@
 # Kotkova Maria
 
-=======
-
 ## Contact information:
 Phone: [+7 931 371 54 86](tel:+79313715486)  
 E-mail: [kotkova_mariya@mail.ru](mailto:kotkova_mariya@mail.ru)  
